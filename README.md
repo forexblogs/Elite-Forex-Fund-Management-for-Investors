@@ -50,7 +50,7 @@ Navigating the world of <strong>Elite Forex Fund Management for Investors</stro
 Remember, the goal isn't to get rich overnight. It's about consistent, long-term growth and protecting what you’ve worked hard to earn. If you’re tired of the DIY approach and want a more professional touch, exploring managed funds might be the smartest move you make this year. Take your time, ask plenty of questions, and always prioritize the safety of your capital!
 <h2>Related HashTags</h2>
 #ForexFundManagement #EliteInvesting #WealthManagement #ForexTrading #PassiveIncome #InvestmentStrategy #CurrencyTrading #FinancialGrowth #PortfolioManagement #ProfessionalTrading #FXInvesting #SmartInvesting #AssetManagement #ForexMarket
-<h1><strong>Contact Us</strong></h1>
+<h1><strong>Contact Us for Fund Management</strong></h1>
 <ul>
  	<li>
 <h3><strong>Telegram <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://t.me/Forex_Fund_Manage" target="_blank" rel="noopener">@Forex_Fund_Manage</a></span></strong></h3>
